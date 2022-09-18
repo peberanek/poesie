@@ -1,5 +1,5 @@
 ```text
-VZPOMÍNKY
+ŽIVOT JE PŘÍTOMNOST
 
 Truchlím za všechny roky,
 co šel jsem černou tmou.
@@ -12,8 +12,8 @@ Truchlím a nemám zdání,
 jak - jen tak - v klidu žít.
 
 "Držíš se mě pevně,"
-říká Minulost.
-"Nech mě jít nebo zemřeš,
+říká mi Minulost.
+"Nech mě jít a žij,
 život je Přítomnost."
 
 
