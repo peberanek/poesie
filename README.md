@@ -19,8 +19,15 @@ jak - jen tak - v klidu žít.
 
 CAPUT REGNI
 
-Nalevo lesk zlatých věží, zářící auta, vitríny.
-Napravo smutek, bída, slzy ztracené v prachu cesty.
-A mezi tím sluncem zalitá šeď velkoměsta.
-Praha.
+Nalevo lesk zlatých věží,
+zářící auta, vitríny.
+Napravo smutek, bída,
+slzy padají do špíny.
+
+Radostí, pláčem, nadějí,
+lemována je ta cesta.
+Tu a tam sluncem zalitá,
+čeká šeď velkoměsta.
+
+Praha
 ```
