@@ -22,10 +22,10 @@ CAPUT REGNI
 Nalevo lesk zlatých věží,
 zářící auta, vitríny.
 Napravo smutek, bída,
-slzy padají do špíny.
+slzy co padaj do špíny.
 
 Radostí, pláčem, nadějí,
-lemována je ta cesta.
+lemovaná je cesta.
 Tu a tam sluncem zalitá,
 čeká šeď velkoměsta.
 
