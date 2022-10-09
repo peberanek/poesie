@@ -37,6 +37,8 @@ Praha
 
 ## KATKA T.
 
+[Madonna - Erotica (Live from The Confessions Tour)](https://www.youtube.com/watch?v=jtMjolbPwas)
+
 ```text
 Katko. Kde je ti konec, Katko?
 Vyšla jsi z tramvaje, na Slavii.
@@ -59,20 +61,20 @@ tolik večerů. Kvůli tobě.
 Znovu jsme se sešli, a nesešli. Nebyla tam
 blízkost. Nebo byla a neviděl jsem jí.
 Podezřívavost. Bolest. Strach.
-A tak na tebe myslím. 1862 a 1/4 dne. Stále si vzpomenu.
+A přesto na tebe myslím. 1862 a 1/4 dne. Stále si vzpomenu.
 
-Jiná Katka. Překážky. Fair Play. Anča. Markéta. Slavia.
+Jiná Katka - Katka U. Překážky. Fair Play. Anča. Markéta. Slavia.
 Kreslím, píšu. Kvůli tobě. Možná v nějakém jiném vesmíru
 jsme se sešli a neodešli.
 Psal jsem ti, znovu. Po letech. Nemohlas, nemělas šanci to pochopit.
 
 Promiň. Pocit viny mě stíhá jako Nemesis.
-Zaco mě trestá? Za jakou Hybris? Za chyby.
+Za co mě trestá? Za jakou Hybris? Za chyby.
 Za chyby co jsem neměl šanci minout.
 Kde je ti konec, Katko?
 
 Tak moc jsem chtěl zapomenout.
-Tak moc bolesti.
+Tolik bolesti.
 A přesto mi pomáháš žít. Víš to?
 Teď už vím, kde je ti konec, Katko.
 
@@ -87,6 +89,7 @@ dokud tě neodnese čas a zapomnění.
 
 Už vím, kde je Ti konec, Katko.
 Moře slz. Už vím, kde je Ti konec.
-Buď zdráva, Katko.
-Usmívám se. Uzdravující se.
+Buď zdráva,
+Katko.
+Usmívám se. Slzy uzdravení tečou mi po tváři.
 ```
