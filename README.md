@@ -50,7 +50,7 @@ kde naše traumata neexistují,
 nestala se.
 
 Kde je ti konec, Katko.
-Princezna Koloběžka, co přijela na kickbiku.
+Princezna Koloběžka, přijela jsi na kickbiku.
 Nedokonalosti zjevu, nedokonalost volby.
 Nebyl jsem první a to mě štvalo.
 
@@ -61,14 +61,14 @@ Medík a Tedík mi dělali společnost tolik dní,
 tolik večerů. Kvůli tobě.
 
 Znovu jsme se sešli, a nesešli. Nebyla tam
-blízkost. Nebo byla a neviděl jsem jí.
+blízkost. Nebo byla a já jí neviděl.
 Podezřívavost. Bolest. Strach.
 A přesto na tebe myslím. 1862 a 1/4 dne. Stále si vzpomenu.
 
 Jiná Katka - Katka U. Překážky. Fair Play. Anča. Markéta. Slavia.
 Kreslím, píšu. Kvůli tobě. Možná v nějakém jiném vesmíru
 jsme se sešli a neodešli.
-Psal jsem ti, znovu. Po letech. Nemohlas, nemělas šanci to pochopit.
+Napsal jsem ti, znovu. Po letech. Nemohlas, nemělas šanci to pochopit.
 
 Promiň. Pocit viny mě stíhá jako Nemesis.
 Za co mě trestá? Za jakou Hybris? Za chyby.
@@ -82,7 +82,7 @@ Teď už vím, kde je ti konec, Katko.
 
 Vzpomínka na tebe je poklad.
 Už ho nechci zapomenout.
-Jsi vzpomínka. Klenot.
+Jsi vzpomínka.
 Svět co mohl být.
 
 Jsi ve mě a žiješ si životem vlastním.
@@ -93,5 +93,5 @@ Už vím, kde je Ti konec, Katko.
 Moře slz. Už vím, kde je Ti konec.
 Buď zdráva,
 Katko.
-Usmívám se. Slzy uzdravení tečou mi po tváři.
+Usmívám se, a z nebe padají slzy uzdravení.
 ```
