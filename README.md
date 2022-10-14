@@ -76,8 +76,8 @@ Za chyby co jsem neměl šanci minout.
 Kde je ti konec, Katko?
 
 Tak moc jsem chtěl zapomenout.
-Tolik bolesti.
-A přesto mi pomáháš žít. Víš to?
+Tolik bolesti. Vytěsnit jí, potlačit, zmizet.
+Vlastně - mi pomáháš žít. Víš to?
 Teď už vím, kde je ti konec, Katko.
 
 Vzpomínka na tebe je poklad.
@@ -93,5 +93,5 @@ Už vím, kde je Ti konec, Katko.
 Moře slz. Už vím, kde je Ti konec.
 Buď zdráva,
 Katko.
-Usmívám se, a z nebe padají slzy uzdravení.
+Usmívám se, a po tváři mi kanou slzy uzdravení.
 ```
